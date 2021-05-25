@@ -11,3 +11,7 @@
 ## Riferimenti
 
 - https://www.carmineroca.it/content-strategy-significato-come-creare-esempi/
+
+Fare post su linkedin sulla base della classificazione
+
+- https://www.inc.com/lolly-daskal/10-powerful-ways-you-can-earn-credibility-in-your-industry.html
